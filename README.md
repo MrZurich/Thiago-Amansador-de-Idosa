@@ -1,8 +1,8 @@
 # Thiago-Amansador-de-Idosa
 
 
+![image](https://github.com/MrZurich/Thiago-Amansador-de-Idosa/assets/150445338/8ddb0e8e-7a80-4b99-8b10-c1a0da10b8dc)
 
-![image](https://github.com/MrZurich/Thiago-Amansador-de-Idosa/assets/150445338/6e63f178-ff58-4112-a782-82ed506b96bd)
 ## Este garoto está sempre pronto para apagar seu fogo
 - Grande extintor
 - Capaz de esmagar qualquer rata
