@@ -12,6 +12,7 @@
 ![image](https://github.com/MrZurich/Thiago-Amansador-de-Idosa/assets/150445338/e0ab3051-c7d8-44ee-b940-4475c41fd3f6)
 ## Veja sua avó sorrindo de  novo
 - Contrate um cuidador que sabe do que ela gosta
+
 #FAQ
 **1. O que é o serviço de coaching para idosas viúvas oferecido por Thiago?**
 Thiago oferece suporte emocional, orientação e assistência para idosas que perderam seus cônjuges, ajudando-as a redescobrir o propósito, lidar com a perda e se adaptar a uma nova fase da vida.
